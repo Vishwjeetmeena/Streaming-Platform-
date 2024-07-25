@@ -1,0 +1,1 @@
+Streaming Platform more detail will be added in future
